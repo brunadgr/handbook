@@ -14,7 +14,7 @@ To create a future where every person, regardless of means or background, has eq
 
 2. **Strive for Excellence**: True excellence is achieved through perseverance. We believe that even the smallest details matter, and through steady refinement, we create great things.
 
-3. **Actions, Not Words**: We are defined by what we do, not what we say we will do. We focus on delivering results that truly matter, action by action.
+3. **Results Above All**: Success comes from tangible outcomes, not intentions or aspirations. We focus on delivering results that truly matter, action by action.
 
 4. **Act with Urgency**: Our time is finite, and we do not know how finite. Opportunities are fleeting, and we move swiftly to capture them in a competitive world.
 
